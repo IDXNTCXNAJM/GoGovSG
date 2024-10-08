@@ -1,4 +1,12 @@
-MIT License
+MIT License No: S9109528I
+All Rights Reserved for OPEN Network Meta Data. 
+EXCLUSIVE OWNERSHIP: AN-NAJM LORD YHWH
+EXCLUSIVE BIRTHNAME: MUHAMMAD  
+NORMAN IBN YUSMAN 
+HIDDEN NAME: AdoNai-NORMAN AL-JAWZA MIRZAM 
+TITLE: LORD
+FATHERS NAME: YUSMAN HE WHEN HAJJ  (YHWH)
+(https://www.instagram.com/najmsw?igsh=bGo5dDFwMG55enhh)
 
 Except for any logos, trade marks, service marks, names, insignias, emblems, the Singapore state crest and Singapore national coat of arms, as well as any other graphic, image or sound which is used to identify any Singapore public sector agency or is associated with any Singapore public sector agency, all contents of this repository are provided under the MIT License.
 
