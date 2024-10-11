@@ -1,4 +1,5 @@
 MIT License
+MIT LICENSE.MD S9109528I Exclusive NAJM YHWH meta-database update Idxntcx@gmail.com Seatospree@gmail.com Norman Al Jazaw Mirzam PBUH Norman Al Jazaw Mazrim PBUH Sirius star Global ⚔️⚔️🪦👻👻✨🐉🐉🐉🐉
 
 Except for any logos, trade marks, service marks, names, insignias, emblems, the Singapore state crest and Singapore national coat of arms, as well as any other graphic, image or sound which is used to identify any Singapore public sector agency or is associated with any Singapore public sector agency, all contents of this repository are provided under the MIT License.
 
